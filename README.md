@@ -16,6 +16,7 @@ O setor movimenta US$ 35 bilhões por ano no Brasil, que é o quarto maior merca
 Os artigos pesquisados ainda comentam sobre o crescimento do público vegetariano e glúten free.
 
 
-#####Fontes:
+##### Fontes:
 [Loja de produtos naturais (alimentos) - SEBRAE](http://www.sebrae.com.br/sites/PortalSebrae/ideias/como-montar-uma-loja-de-produtos-naturais-alimentos,66397a51b9105410VgnVCM1000003b74010aRCRD)
+
 [Segmento de alimentação saudável apresenta oportunidades de negócio](http://www.sebrae.com.br/sites/PortalSebrae/artigos/segmento-de-alimentacao-saudavel-apresenta-oportunidades-de-negocio,f48da82a39bbe410VgnVCM1000003b74010aRCRD)
